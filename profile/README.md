@@ -5,7 +5,7 @@ if you are **Linux🐧**lovers than follow us!!!
 # Our Goal:
 Our goal is to create the most sussy operating system ever!!!
 And,if you love among us, you may have crossed an Os called amogOS(more info: https://github.com/Amog-OS/AmogOS ), but that was a meme OS!
-Ours isn`t though and we will make more apps just for thye living of the OS!!!!(and maybe a app store called "sus shop")
+Ours isn`t though and we will make more apps just for the living of the OS!!!!(and maybe a app store called "sus shop")
 
 ### More from us:
 see our Patreon: https://patreon.com/sussyOS
